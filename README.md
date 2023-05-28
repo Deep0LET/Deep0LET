@@ -2,7 +2,7 @@
 - 👀 I’m interested in Learning
 - 🌱 I’m currently learning JAVA
 - 💞️ I’m looking to collaborate on Anything related to JAVA
-- 📫 How to reach[ me not in a mood
+- 📫 How to reach
 ](https://www.instagram.com/yup_deep/)
 
 <!---
